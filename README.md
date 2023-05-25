@@ -1,2 +1,2 @@
-# TakSan Chan & Chisom Ibe
+# Project by TakSan Chan & Chisom Ibe
 
